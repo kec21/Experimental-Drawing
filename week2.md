@@ -41,7 +41,7 @@ There were two videos I wanted to include, but after digging through some online
 
 ## Indra's Net  
 
-I approached my installation in WMC as an opportunity to sketch for my potential upcoming solo show. I'm leaning into trusting myself and my instincts more and not being neurotically attached to a plan. They usually don't work out anyway, so why make them? I can start with ideas, and those are much more flexible than plans.  
+I approached my installation in WMC as an opportunity to sketch for a potential upcoming solo show. I'm leaning into trusting myself and my instincts more and not being neurotically attached to a plan. They usually don't work out anyway, so why make them? I can start with ideas, and those are much more flexible than plans.  
 
 ![alt text](images/setup.jpeg)  
 ![alt text](images/indrasnet.jpeg)  
