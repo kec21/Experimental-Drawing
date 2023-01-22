@@ -22,6 +22,11 @@ YOUTUBE LINK GOES HERE
 
 I have taken a large bag of band aids collected from at home medical injection kits (they always sent a ridiculous amount) and have stamped them with the words IM SORRY. Josh and I will be setting up a camera on a tripod and put me in front of it. Meanwhile Josh slowly covers my face in band-aid apologies, until I can't see or speak, and finally until you can't see me anymore.
 
+![alt text](images/imsorry1.jpg)  
+![alt text](images/imsorry2.jpg)  
+![alt text](images/imsorry3.jpg)  
+![alt text](images/imsorry4.jpg)  
+
 ## Accupuncture  
 
 As a first step away from conventional care and towards whatever the hell works and doesn't drain my bank account, I have started doing accupuncture treatments again. I had some success with it in my early 20s, but needed more aggressive treatment for cancer and didn't have the budget to do both. Much to my surprise, it is covered by my insurance and I am only paying $30 a session. They have recommended 8-12 and I will be "sketching" with my body at every session.  
